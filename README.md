@@ -58,9 +58,7 @@ I work closely with:
 
 ## 🌍 Beyond Work
 
-Outside work, I love exploring how **AI shapes workflows, productivity & creativity** — and I'm always excited to help teams think through:
-
-> “What’s the right thing to build next?”
+Outside work, I love enjoy sleeping and waking up without alarms!
 
 ---
 
